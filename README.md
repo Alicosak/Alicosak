@@ -1,7 +1,7 @@
 # Nicolás Pinto (Alicosak) :metal::sunglasses:
 
 ## Información
-:dart: [Redes Sociales](bit.ly/3ZCfkoE)
+:dart: [Redes Sociales](https://beacons.ai/nicolaspinto)
 
 ## :page_facing_up: Acerca de mi
 
